@@ -9,6 +9,6 @@
 
 
 
-## More music:
-## [SUBSCRIBE](http://bit.ly/BlearBeninMusic) or
+
+## [SUBSCRIBE](http://bit.ly/BlearBeninMusic)
 ## [Stream this song](https://found.ee/CrankItUp)
