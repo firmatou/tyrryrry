@@ -11,4 +11,4 @@
 
 ## More music:
 ## [SUBSCRIBE](http://bit.ly/BlearBeninMusic) or
-## [Stream this song:](https://found.ee/CrankItUp)
+## [Stream this song](https://found.ee/CrankItUp)
