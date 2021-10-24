@@ -10,5 +10,5 @@
 
 
 ## More music:
-## [YouTube](https://www.youtube.com/c/blearbenin) or
-## [Streaming Platforms](https://found.ee/CrankItUp)
+## [SUBSCRIBE](http://bit.ly/BlearBeninMusic) or
+## [Stream this song:](https://found.ee/CrankItUp)
